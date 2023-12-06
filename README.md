@@ -4,12 +4,12 @@
 
 ## Join my universe [Tiktok](https://www.tiktok.com/@rizkiagungid), [Instagram](https://www.instagram.com/rizkiagung.id) and [Youtube](https://www.youtube.com/c/rizkiagungsentosa)
 
-![Preview](/demo/1.png)
-![Preview](/demo/2.png)
-![Preview](/demo/3.png)
-![Preview](/demo/4.png)
-![Preview](/demo/5.png)
-![Preview](/demo/6.png)
+![Preview](/ss/1.png)
+![Preview](/ss/2.png)
+![Preview](/ss/3.png)
+![Preview](/ss/4.png)
+![Preview](/ss/5.png)
+![Preview](/ss/6.png)
 
 
 ## Donate
